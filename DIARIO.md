@@ -1,0 +1,3 @@
+# DIARIO
+
+- AAAA-MM-DD ·
